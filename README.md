@@ -38,7 +38,7 @@ Looking for the perfect RedNote username that reflects your personality and styl
 
 Ready to find your perfect RedNote name? Click the link below to get started:  
 
-👉 **[RedNote Name Generator](https://tiktokrefugees.website/rednote-name-generator/)**  
+👉 **[RedNote Name Generator](https://tiktokrefugees.website/rednote-name-generator-meaningful-names/)**  
 
 Share your new RedNote name with friends and let them know about this fun and insightful tool. Let’s make your RedNote experience even more special!  
 
